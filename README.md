@@ -4,6 +4,6 @@
 
 ## kelompok 3 :
 - Zul Akhyar
-- 
+- Teuku Tamam Al Fatah
 
 ## lainnya
