@@ -5,5 +5,5 @@
 ## kelompok 3 :
 - Zul Akhyar
 - Teuku Tamam Al Fatah
-
+- M Nizar Asykary 
 ## lainnya
